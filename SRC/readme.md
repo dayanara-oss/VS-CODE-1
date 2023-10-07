@@ -7,4 +7,4 @@ El ganador y ostentador del título no es otro que Deontay Wilder. Canelo Alvare
  (2011-2013), antes de ganar el título de campeón mundial de boxeo de la WBO (2016-2017). Desde entonces, el mexicano dejó el ring,
   tras ser sometido a un control antidopaje.
 La federación también incluye muchos cinturones menores (Latino, Silver). Se trata de competiciones de menor importancia para el
- público en general, que a veces bloquean el desarrollo de los principales combates de boxeo.    
+ público en general, que a veces bloquean el desarrollo de los principales combates de boxeo.
